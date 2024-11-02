@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @luckychera
+- 👋 Hi, I’m Lucky(chera) Tolosa
 - 👀 I’m interested in Programming and it's field.
 - 🌱 I’m currently learning in preparatory school and I am graduated by Web development courses.
 - 💞️ I’m looking to collaborate on relashinship.
